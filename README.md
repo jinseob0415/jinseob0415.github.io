@@ -1,1 +1,0 @@
-# jinseob0415.github.io
